@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Olajide811
-- 👀 I’m interested in ...
+- 👀 I’m interested in learning.
 - 🌱 I’m currently learning fullstack developer
 - 💞️ I’m looking to collaborate on every aspect you can teach as a friend
 - 📫 How to reach me 09037021677 whatsapp
